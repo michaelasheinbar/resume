@@ -1,6 +1,5 @@
 # MICHAELA SHEINBAR
 
-
 ## Relevant Work Experience
 
 ### The Jupiter Drawing Room (CT)
@@ -35,7 +34,7 @@
 
 * Assisted with new business pitches.
 
-**Clients:**
+#### ***Clients:***
 
 * Heineken SA (Windhoek)
 
@@ -73,7 +72,7 @@
 
 * Assisted with new business pitches.
 
-**Clients:**
+#### ***Clients:***
 
 * Brandhouse (Windhoek SA)
 
@@ -95,7 +94,7 @@
 
 * Continuously extended work capacity and absorbed projects from Account Director in an attempt to grow.
 
-**Clients:**
+#### ***Clients:***
 
 * Brandhouse (Windhoek SA)
 
