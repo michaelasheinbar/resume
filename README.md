@@ -14,7 +14,7 @@
 
 * Client service lead for the development and implementation of communication, digital, and CRM strategies.
 
-* Wholly responsible for delivering cross-channel campaigns in line with agreed strategy, timelines and budgets. 
+* Wholly responsible for delivering cross-channel campaigns in line with agreed strategy, timelines and budgets. This includes the execution of on-trade and off-trade promotions. 
 
 * Successfully coordinated many departments across large organisations, and managed collaboration with partner agencies and suppliers as per lead agency model.
 
