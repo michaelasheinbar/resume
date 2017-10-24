@@ -146,33 +146,6 @@ The following is a brief list of soft skills I have developed, and will continue
 
 * **Read between the lines:** Ability to identify the real issue that needs to be solved, even when peppered with unsuitable suggestions
 
-## Education
-
-#### ***Curtin University***
-**2017 (Current)** [Digital Branding and Engagement](https://www.edx.org/course/digital-branding-engagement-curtinx-mkt1x-3)
-
-4 week online course through EdX platform
-
-#### ***University of British Columbia***
-
-**2017:** [Introduction To Marketing](https://www.edx.org/course/introduction-marketing-ubcx-busmktg1x)
-
-6 week online course through EdX platform
-
-#### ***University of Cape Town*** 
-
-**2009 – 2011:** Bachelor of Arts Triple Major
-
-Media & Writing, Film Studies & Production
-
-Dean’s List of Merit in 2010
-
-#### ***Herzlia***
-
-**2008:** High School Matriculation 
-
-With Distinction and Full Academic Colours
-
 ## References
 
 #### Jeremy Crowder
